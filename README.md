@@ -9,4 +9,4 @@
 - 👯 I’m looking to collaborate on ... Social Projects
 - 🤔 I’m looking for help with ... Work in Europe
 - 💬 Ask me about ... AI for Sports
-- ⚡ Fun fact: ... Im bad with DB
+- ⚡ Fun fact: ... Dev ser legal, ser negão no Senegal.
